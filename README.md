@@ -13,7 +13,7 @@
 
 - 🤝 I’m looking for help with **Going Out Of Business©**
 
-- 📝 I regularly write articles on [Going Out Of Business©.com](Going Out Of Business©.com)
+- 📝 I regularly write articles on Going Out Of Business©
 
 - 💬 Ask me about **Israel**
 
